@@ -1,0 +1,23 @@
+Ordenanza Nº2191
+Ordenanza Nº 2191
+Roque Pérez, 17/08/2018
+VISTO:
+Los hechos delictivos ocurridos a los vecinos de Roque Pérez, y que muchos no cuentan con recursos económicos para contratar servicios de alarma, vigilancia y/o monitoreo y;
+CONSIDERANDO:
+Que la inseguridad es un flagelo de las sociedades contemporáneas, un fenómeno mundial en ascenso en muchos países y ciudades del mundo, que se ha vuelto difícil de contrarrestar por su organización y sofisticación en muchos casos, y en otros, por un deficiente accionar de los poderes y órganos del estado;
+Que lamentablemente, pasan los años y no hay una política de Estado vinculada a la seguridad y, mientras tanto, el problema se agrava cada vez más y cuestiones que parecían propias de las grandes ciudades y el conurbano, se van extendiendo a lo largo y ancho de la provincia con niveles de inseguridad muy elevados en lugares que antes eran impensados, generando una sensación de inseguridad y desprotección a la ciudadanía;
+Que sin ningún tipo de dudas, la inseguridad es un flagelo que debe abordarse integralmente y en distintos niveles, desde la planificación de políticas públicas a nivel educativo, social y cultural, generando oportunidades de inclusión e integración de las personas que están fuera del mercado laboral, así como trabajar en revertir la deserción escolar con programas culturales y deportivos que son fundamentales para la formación de valores y espiritualidad de las personas;
+Que por otra parte, se requiere de políticas específicas de seguridad referidas al accionar y respuesta de las fuerzas de seguridad, que claramente se deben ejecutar desde distinto niveles, jurisdicciones y poderes del estado, pero que sin dudas, en donde se necesitan soluciones del ámbito federal, provincial y local;
+Que a nivel local, la seguridad continúa siendo la máxima preocupación de los vecinos y hemos sufrido hechos de extrema gravedad
+Que este sistema puede utilizarse no solo para casos en seguridad, sino también en cuestiones de emergencias de salud o cualquier otra índole.
+Que por lo tanto a nivel local, donde los concejales (como representantes de los vecinos de Roque Pérez) tenemos el compromiso de contribuir desde nuestro marco de acción, a la tarea que realiza la Municipalidad en Seguridad y Justicia en todo lo atinente a las políticas de prevención, control y asistencia que lleva a cabo contra el delito;
+Que por ello, la inseguridad se debe abordar desde el compromiso conjunto del Estado y la participación ciudadana, porque se requiere de medidas que hagan a la prevención delictual y una expedita respuesta de las fuerzas de seguridad, pero también del activismo ciudadano al momento de efectuar la denuncia y cuidarse entre los propios vecinos;
+Que por ende, resulta fundamental diagramar políticas de seguridad que tengan a la participación ciudadana como su principal bastión, como ha ocurrido con el Foro de Seguridad, figura que alguna vez ha tenido gran peso, pero lamentablemente en los últimos años se ha desvalorizado;
+Que son los vecinos los que a través de su interacción hacen posible visualizar las deficiencias en materia de seguridad y trabajan para superarlas mediante medidas constructivas y mejoradoras propuestas;
+Que desde esa óptica y reconociendo a la inseguridad como una de los principales preocupaciones de la ciudadanía, trabajamos con los equipos del Frente Renovador durante la campaña electoral, alternativas de prevención en base a la exitosa experiencia del municipio de Tigre en materia de seguridad a partir, entre otras (y muchas) cuestiones, de la colocación de dispositivos de alarma, la generación de zonas vigiladas y una aplicación móvil que permite la comunicación entre los vecinos y la posibilidad de dar aviso inmediato a la policía;
+Que asimismo su utilización es muy sencilla dado que se activa fácilmente desde la aplicación que se descarga, llegando a todos los vecinos asociados al sistema, un mensaje donde se informa quién fue el que solicitó la asistencia para que las fuerzas de seguridad pueden asistirlos, por lo que permite el autocontrol del grupo sobre la situación de su vecino, así como el control de quien hace un uso responsable de la aplicación;
+Que actualmente, este programa se está instalando en 2 cuadriculas de nuestra ciudad, en donde los vecinos se verán beneficiados, por lo que sería importante trabajar en la ampliación masiva de alternativas similares para brindar una herramienta a los sectores que se sienten más desprotegidos por la inseguridad;
+Por todo ello
+EL HONORABLE CONCEJO DELIBERANTE acuerda y sanciona con fuerza de
+ORDENANZA
+ORDENANZA
