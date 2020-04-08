@@ -1,0 +1,12 @@
+ARTICULO 6º.- Por la venta de cestos de residuos para el tratamiento y reciclado de residuos sólidos urbanos:
+Recipiente para Residuos Reciclables , cap. 50 litros
+$1460
+Recipiente para Residuos Humedos , cap. 15 litros
+$590
+Recipiente para Residuos Humedos , cap. 18 litros
+$605
+Recipiente para Residuos Humedos , cap. 60 litros
+$1606
+Facultase al Departamento ejecutivo a establecer los ajustes de los valores fijados por la presente ordenanza, conforme los aumentos que puedan surgir, a través de los decretos correspondientes.
+Las tasas que deberán abonar los solicitantes de los servicios y trabajos que realice el Municipio dentro de su jurisdicción, no incluidos en otros artículos de esta Ordenanza, que sean solicitados por terceros o ejecutados de oficio cuando razones de interés comunitario lo exijan, estarán determinadas por el importe que resulte de la confección del presupuesto correspondiente, en el que se tendrán en cuenta todos los costos relacionados.
+CAPITULO III – HABILITACION DE COMERCIO E INDUSTRIA

@@ -1,0 +1,1 @@
+ARTICULO 40°.-Sobre la recaudación de la Tasa de Red Vial que obtenga el Municipio durante el Ejercicio 2020, se otorgará el 1(uno) % a la Asociación de Bomberos Voluntarios de Roque Pérez. Autorízase al Departamento Ejecutivo a reglamentar el procedimiento para el cumplimiento de esta disposición.-

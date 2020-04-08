@@ -1,0 +1,24 @@
+ARTICULO 25°.- Por la prestación de los servicios de conservación, reparación y mejorado de los caminos y calles de la zona rural se abonará, anualmente por hectárea y contribuyente una tasa cuyos importes se fijan en el presente capítulo:
+Las fracciones suburbanas de hasta 7 hectáreas medidas desde la plaza Bme. Mitre pagaran en concepto de la tasa de Conservación, Reparación y Mejorado de la Red Vial Municipal cuando se encuentren dentro de 5 km. del radio urbano de Roque Pérez anualmente un importe fijo por hectárea
+$2170
+a) De 0 a 7 hectáreas
+$193
+b) De 7.01 a 50 hectáreas
+$234
+c) De 50,01 a 200 hectáreas
+$268
+d) De 200,01 a 600 hectáreas
+$301
+e) De 600,01 a 1000 hectáreas
+$335
+f) Más de 1000 hectáreas
+$368
+23.1.- En todos los casos definidos por la escala anterior se aplicarán los siguientes adicionales:
+23.1.1.- Lucha contra las Plagas del Agro 5%
+23.1.2.- Tasa de Salud 2.5%
+23.1.3.- Tasa de Seguridad 2.5%
+23.2.-Bonificaciones:
+Para el presente artículo, otórguese una bonificación del diez por ciento (10%) del valor a las cuotas bimestrales abonadas en término cuando el contribuyente no registre deuda.
+Conjuntamente con el pago del primer bimestre, el contribuyente podrá optar por un pago anual, con un diez por ciento (10%) de bonificación adicional a la dispuesta en el párrafo precedente.
+Todos los contribuyentes abonaran por la tasa que se establece en el presente capitulo un mínimo fiscal por año de $2838.
+CAPITULO XVI – DERECHO DE CEMENTERIO

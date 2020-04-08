@@ -1,0 +1,5 @@
+ARTICULO 10º:
+Exceptuase del pago de la tasa por inspección de seguridad e higiene, derecho de publicidad y propaganda, derecho de ocupación de espacios públicos previstos en la ordenanza fiscal, a los contribuyentes obligados al pago de la tasa para grandes contribuyentes prestadores de servicios públicos regulados en el presente capitulo.
+No están comprendidas en la presente excepción las tasas correspondientes a factibilidad de locación y habilitación y la de inspección de antenas de comunicación y sus estructuras portantes.
+El D. E. podrá disponer para los contribuyentes que no registren deudas, un descuento de hasta el 10 %.
+CAPITULO VI – DERECHO POR PUBLICIDAD Y PROPAGANDA
