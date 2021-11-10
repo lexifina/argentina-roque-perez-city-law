@@ -1,0 +1,5 @@
+Ordenanza Nº2294
+Ordenanza Nº 2294
+Roque Pérez, 29/09/2021
+ORDENANZA
+ORDENANZA
