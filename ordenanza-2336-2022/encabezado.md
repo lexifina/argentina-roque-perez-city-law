@@ -1,0 +1,5 @@
+Ordenanza Nº2336
+Ordenanza Nº 2336
+Roque Pérez, 28/07/2022
+ORDENANZA
+TITULO I - CONCEPTOS Y OBJETIVOS
