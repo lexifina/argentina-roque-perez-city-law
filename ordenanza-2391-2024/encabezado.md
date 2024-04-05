@@ -1,0 +1,6 @@
+Ordenanza Nº2391
+Ordenanza Nº 2391
+Roque Pérez, 19/02/2024
+ORDENANZA
+EL HONORABLE CONCEJO DELIBERANTE acuerda y sanciona con fuerza de
+ORDENANZA IMPOSITIVA
