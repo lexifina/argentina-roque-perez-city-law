@@ -1,0 +1,4 @@
+ARTÍCULO 2º.- Comuníquese al Departamento Ejecutivo. –
+DADA EN LA SALA DE SESIONES DEL HONORABLE CONCEJO DELIBERANTE DE ROQUE PÉREZ A LOS DIEZ DÍAS DEL MES DE SEPTIEMBRE DEL AÑO DOS MIL VEINTICUATRO.-
+Firmada: Jimena Rodríguez. Secretaria. H.C.D. Municipalidad de Roque Pérez –María Regueira. Presidente. H.C.D. Municipalidad de Roque Pérez.
+Registrada bajo el n° 2.426 con fecha 13/09/2024.-
