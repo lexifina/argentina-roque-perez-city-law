@@ -1,0 +1,6 @@
+Ordenanza Nº2444/2025
+Ordenanza Nº 2444/2025
+Roque Pérez, 10/01/2025
+EL HONORABLE CONCEJO DELIBERANTE acuerda y sanciona con fuerza de
+ORDENANZA IMPOSITIVA
+ORDENANZA
