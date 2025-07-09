@@ -1,0 +1,6 @@
+Ordenanza Nº2467/2025
+Ordenanza Nº 2467/2025
+Roque Pérez, 15/05/2025
+ORDENANZA
+EL HONORABLE CONCEJO DELIBERANTE acuerda y sanciona con fuerza de
+O R D E N A N Z A
