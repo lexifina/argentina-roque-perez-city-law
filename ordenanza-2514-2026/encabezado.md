@@ -1,0 +1,5 @@
+Ordenanza Nº2514/2026
+Ordenanza Nº 2514/2026
+Roque Pérez, 12/03/2026
+ORDENANZA
+ORDENANZA
