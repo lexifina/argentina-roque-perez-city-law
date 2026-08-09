@@ -1,0 +1,2 @@
+ARTÍCULO 4º. Considérese vencido el año de gracia otorgado a los compradores que originalmente hayan adquirido los lotes, debiendo iniciar el pago de los mismos en la fecha que establezca el Departamento Ejecutivo, a partir de la promulgación de la presente Ordenanza.
+Asimismo, los nuevos compradores que concreten la adquisición con posterioridad a la sanción de la presente norma, contarán con un (1) año de gracia para comenzar el pago del inmueble, en igualdad de condiciones que los compradores originales.
