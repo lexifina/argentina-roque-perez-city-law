@@ -1,0 +1,11 @@
+{
+  "path": "ar-b-roque-perez",
+  "code": "AR-B-ROQUE-PEREZ",
+  "name": "Roque Pérez",
+  "level": "municipality",
+  "parent": "ar-b",
+  "repo": "https://github.com/lexifina/argentina-roque-perez-city-law",
+  "build": "built: municipal ordinances (209 ordinances, 209 versions) from https://sibom.slyt.gba.gob.ar/cities/106",
+  "language": "es",
+  "sources": 1
+}
